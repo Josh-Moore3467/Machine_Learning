@@ -9,4 +9,4 @@ Assignment 2 Info:
 
 
 Assignment 3 Info:
---Video Link: 
+--Video Link: https://youtu.be/ejFmAI_k
